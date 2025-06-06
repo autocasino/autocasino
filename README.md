@@ -1,5 +1,5 @@
 # [OpenSource]AutoCasino: A Comprehensive Entertainment Platform on ElizaOS 🤖
-![image](https://github.com/user-attachments/assets/b26ca073-9356-44e7-819f-483a1af08476)
+<img src="https://pictr.com/images/2025/06/06/xdlF68.jpg" alt="xdlF68.jpg" border="0" />
 
 🌍 [Website](https://autocasino.fun/) | 🚩 [Twitter](https://x.com/autocasinofun)
 
